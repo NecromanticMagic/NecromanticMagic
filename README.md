@@ -23,5 +23,4 @@ Usually in Venture Bros area with friends / in bakery on PonyTown
 </p>
 <img width=2048 height=145 alt="
 tumblr_8d158535fbff918e0ba757a12d151eea_664cdd45_2048" src="https://64.media.tumblr.com/8d158535fbff918e0ba757a12d151eea/b447a43418bd433b-5e/s2048x3072/664cdd459f2b2910e52b0fafbd08db5bad093f18.pnj"
-
-  </p>
+  </P>
